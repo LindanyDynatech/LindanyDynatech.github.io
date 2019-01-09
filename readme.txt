@@ -1,4 +1,4 @@
-Thanks for downloading this theme!
+www.dynatech.co.za
 
 Theme Name: Squadfree
 Theme URL: https://bootstrapmade.com/squadfree-free-bootstrap-template-creative/
